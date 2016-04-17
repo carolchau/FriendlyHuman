@@ -3,11 +3,8 @@ Fembites
 by Carol Chau, Rina Schiller, Lily Caplan, Cherin Oh (for the Android app version)
 
 Flawless Hacks
-
 April 16, 2016
-
 9:30AM - 10:00PM
-
 RiseNY, 43 West 23rd St
 
 
